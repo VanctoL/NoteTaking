@@ -1,5 +1,1 @@
-Note Taking
-
-Taking note down to rember something.
-
-Table of Contents
+把觉得重要的、有趣的都记下来！
